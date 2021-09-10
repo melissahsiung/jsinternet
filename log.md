@@ -1,5 +1,22 @@
 # Log
 
+## 9/10/21 Friday
+- Random links bc i need to close tabs bc i am going to be on zoom & don't want my laptop to be slow
+  - https://aboutfeeds.com/why
+  - https://interconnected.org/home/
+  - https://mindhacks.com/book/ < why does this book keep popping up!?
+  - https://interconnected.org/home/
+  - https://interconnected.org/home/2020/09/24/unoffice_hours < I want to do this but i am behind on past mtg follow-ups
+  - https://www.eventbrite.com/e/introducing-the-nyc-peoples-tech-assemblies-the-future-of-tech-policy-registration-167346358463
+  - https://www.cityandstateny.com/opinion/2021/08/time-shine-sunlight-public-authorities/184699/
+  - https://www.youtube.com/watch?v=EWY_t37zegY
+  - https://responsibletech.work/
+
+## 9/9/21 Thursday
+- Reading
+  - https://doctorow.medium.com/the-memex-method-238c71f2fb46
+  - https://branch.climateaction.tech/issues/issue-2/open-climate-now/
+
 ## 9/8/21 Wednesday
 - Feeling overwhelmed & too dumb & physically unable to focus on anything to understand things like:
   - https://irtf.org/hrpc
