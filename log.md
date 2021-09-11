@@ -18,7 +18,8 @@
 - Comic idea: "This is fine" dog except he's stressing and has a million tabs open and is saying, "How can I do anything if I don't even understand how combustion works"
    - hahaha https://twitter.com/llegaspacheco/status/1111783777372639232
 - Having doubts about sharing this 
-
+- Retweeted something for the first time in foreve
+r
 ## 9/7/21 Tuesday
 
 
